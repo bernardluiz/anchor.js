@@ -6,4 +6,5 @@
   <a href="https://dpmd.lamandaukab.go.id/data-macau/">data macau</a>
     <a href="https://slot-demo.ummetro.ac.id/">slot demo</a>
       <a href="https://data-hk.kitsupervivencia.net/">data hk</a>
+        <a href="https://www.slot-gacor.adia.uinib.ac.id/">slot gacor</a>
 </div>
